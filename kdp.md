@@ -8,7 +8,6 @@ The book is structured in a way that takes readers through the fundamentals of g
 
 Whether you're looking to advance your career, improve relationships, or simply live a more fulfilling life, "The Power of Purpose" can help you achieve your goals. By following the tips and strategies outlined in this book, readers can develop a clearer sense of purpose and direction, and build habits that will support them in achieving their dreams.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
