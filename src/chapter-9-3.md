@@ -1,4 +1,4 @@
-Chapter: Strategies for Achieving Sustained Success through a Practice of Purpose-Driven Goal Setting
+Strategies for Achieving Sustained Success through a Practice of Purpose-Driven Goal Setting
 =====================================================================================================
 
 Introduction
