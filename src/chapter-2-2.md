@@ -1,5 +1,3 @@
-Techniques for Cultivating a Mindset Towards Purpose-Driven Goal Setting
-===================================================================================
 
 In this chapter, we will explore various techniques that can help cultivate a mindset aligned with purpose-driven goal setting. Creating the right mindset is essential for setting and achieving meaningful goals that are in line with your purpose. By adopting these techniques, you can develop the mental framework and attitudes needed to pursue purpose-driven goals effectively.
 

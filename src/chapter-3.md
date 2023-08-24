@@ -1,5 +1,3 @@
-Chapter 2: The Basic Idea Behind Effective Goal Setting Strategies
-==================================================================
 
 In chapter 2, we'll explore the basic idea behind effective goal setting strategies and how they can be used to improve productivity and success. We'll also examine techniques for understanding the principles of effective goal setting, and strategies for using these techniques to maximize goal achievement potential.
 

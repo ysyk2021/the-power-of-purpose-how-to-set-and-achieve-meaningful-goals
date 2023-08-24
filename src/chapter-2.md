@@ -1,5 +1,3 @@
-Chapter 1: Understanding the Importance of Purpose
-==================================================
 
 Understanding the Fundamentals of Purpose-Driven Goal Setting and Its Impact on Productivity and Success
 --------------------------------------------------------------------------------------------------------

@@ -1,5 +1,3 @@
-Chapter 5: Leveraging Tools and Resources for Goal Setting
-==========================================================
 
 In this chapter, we will explore the role of tools and resources in effective goal setting. We will discuss techniques for selecting and implementing tools and resources for goal setting, as well as strategies for using these tools and resources to support effectiveness.
 

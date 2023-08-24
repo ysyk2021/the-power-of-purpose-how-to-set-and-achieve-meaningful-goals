@@ -1,5 +1,3 @@
-Chapter 3: Assessing Your Current Approach to Goal Setting
-==========================================================
 
 In this chapter, we will explore the importance of assessing your current approach to goal setting when seeking to refine your strategies. We will discuss techniques for identifying areas of strength and weakness in your current approach and strategies for analyzing past successes and failures to inform your future approaches.
 

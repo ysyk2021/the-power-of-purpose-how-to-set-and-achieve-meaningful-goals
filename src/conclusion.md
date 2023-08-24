@@ -1,4 +1,3 @@
-# Conclusion
 
 Congratulations! You have completed "The Power of Purpose: How to Set and Achieve Meaningful Goals." In this book, we explored the basics of effective goal setting, advanced goal setting strategies, and techniques for navigating obstacles and resistance in the goal-setting process.
 

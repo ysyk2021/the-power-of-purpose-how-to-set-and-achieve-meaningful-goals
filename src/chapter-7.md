@@ -1,5 +1,3 @@
-Chapter 6: Navigating Obstacles and Resistance in Goal Setting
-==============================================================
 
 The Obstacles and Resistance that can Arise when Seeking to Use Effective Goal Setting Strategies
 -------------------------------------------------------------------------------------------------

@@ -1,5 +1,3 @@
-Obstacles and Resistance in Effective Goal Setting Strategies
-========================================================================
 
 In this chapter, we will explore the common obstacles and resistance that can arise when seeking to use effective goal-setting strategies. While setting meaningful goals is essential for personal and professional growth, various challenges can hinder our progress. By understanding these obstacles, we can develop strategies to overcome them and stay committed to achieving our goals.
 

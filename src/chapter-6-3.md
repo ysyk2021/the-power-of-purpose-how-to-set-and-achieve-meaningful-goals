@@ -1,5 +1,3 @@
-Strategies for Using Tools and Resources to Support Effectiveness
-============================================================================
 
 In this chapter, we will explore strategies for effectively utilizing the tools and resources discussed in the previous chapter. These strategies will help you maximize the potential of these tools, enhancing their effectiveness in supporting your goal-setting journey. Read on to discover techniques that will optimize your utilization of these resources.
 
