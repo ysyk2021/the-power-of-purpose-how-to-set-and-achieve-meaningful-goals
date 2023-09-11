@@ -3,7 +3,6 @@
 - [Introduction](README.md)
   - [Explanation of the importance of purpose-driven goal setting in personal and professional success](chapter-1-1.md)
   - [Overview of the benefits of developing a strong sense of purpose](chapter-1-2.md)
-  - [Brief on how the book will help readers set and achieve meaningful goals](chapter-1-3.md)
 - [Chapter 1: Understanding the Importance of Purpose](chapter-2.md)
   - [Understanding the fundamentals of purpose-driven goal setting and its impact on productivity and success](chapter-2-1.md)
   - [Techniques for cultivating a mindset towards purpose-driven goal setting](chapter-2-2.md)
@@ -38,3 +37,4 @@
   - [Strategies for achieving sustained success through a practice of purpose-driven goal setting](chapter-9-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
